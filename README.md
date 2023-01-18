@@ -1,12 +1,12 @@
 <h1 align="center">👋 Sup lads, it's me</h1>
-<h3 align="center">Le epic trollge shitposter and gaymeroyer, filthy weeb, I use arch btw</h3>
+<h3 align="center">Le epic trollge shitposter and gaymer™, filthy weeb, I use arch btw</h3>
 
 <h3 align="center">
 <img height="169px" src=https://github-readme-stats.vercel.app/api?username=kaonwry&show_icons=true&theme=gruvbox>
 <img height="169px" src=https://github-readme-stats.vercel.app/api/top-langs/?username=kaonwry&theme=gruvbox&layout=compact>
 </h3>
 <p align="left">
-Currently a geoscience undergraduate in Bandung Institute of Technology (yea I'm mostly self taught)
+Currently a geoscience undergraduate in Bandung Institute of Technology (yea I'm mostly self taught).
 </p>
 
 
