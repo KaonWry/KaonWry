@@ -1,5 +1,5 @@
 <h1 align="center">👋 Sup lads, it's me</h1>
-<h3 align="center">Le epic trollge, shitposter, and gaymer™, filthy weeb, obligatory I use arch btw</h3>
+<h3 align="center">Le epic trollge, shitposter, gaymer™, filthy weeb, obligatory I use arch btw</h3>
 
 <h3 align="center">
 <img height="169px" src=https://github-readme-stats.vercel.app/api?username=kaonwry&show_icons=true&theme=gruvbox>
