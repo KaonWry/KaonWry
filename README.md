@@ -5,7 +5,7 @@ Currently a part time shitposter.<br>
 Just kidding lads I currently a geoscience undergraduate in Bandung Institute of Technology (yea I'm mostly self taught).<br>
 You can talk to me about anything tho, HMU on discord (KaonWry#9801)<br>
 <sup><sub>Yeaaaaa... so this is my intro page huh? Dunno why didn't I use stuff like carrd or shit like that.</sub></sup><br>
-<br><br>
+<br>
 
 
 ## 🌐 Socials:
