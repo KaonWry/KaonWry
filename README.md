@@ -5,8 +5,6 @@ Currently a part time shitposter.<br>
 Just kidding lads I currently a geoscience undergraduate in Bandung Institute of Technology (yea I'm mostly self taught).<br>
 You can talk to me about anything tho, HMU on discord (KaonWry#9801)<br>
 <sup><sub>Yeaaaaa... so this is my intro page huh? Dunno why didn't I use stuff like carrd or shit like that.</sub></sup><br>
-<br>
-
 
 ## 🌐 Socials:
 [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/trystan-gabriel) [![Twitter](https://img.shields.io/badge/Twitter-%231DA1F2.svg?logo=Twitter&logoColor=white)](https://twitter.com/ct11201) 
