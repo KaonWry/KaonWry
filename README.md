@@ -2,7 +2,7 @@
 <h3>This is probably the most unprofessional intro page innit?</h3>
 Milhis enthusiast, big time teaboo, air combat and naval warfare nerd, simulator pilot, filthy degenerate weeb.<br>
 Currently a part time shitposter and an <s>unqualified</s> IT support.<br>
-Just kidding lads I currently a geoscience undergraduate in Bandung Institute of Technology (yea I'm mostly self taught).<br>
+Just kidding lads, I currently a geoscience undergraduate in Bandung Institute of Technology (yea I'm mostly self taught).<br>
 You can talk to me about anything tho, HMU on discord (KaonWry#9801)<br>
 <br>
 i use arch btw<br>
