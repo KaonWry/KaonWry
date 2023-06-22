@@ -1,6 +1,6 @@
 # 💫 About Me:
 <h3>This is probably the most unprofessional intro page innit?</h3>
-Milhis enthusiast, big time teaboo, air combat and naval warfare nerd, simulator pilot, filthy degenerate weeb.<br>
+Milhis enthusiast, air combat and naval warfare nerd, simulator pilot, filthy degenerate weeb.<br>
 Currently a part time shitposter and an <s>unqualified</s> IT support (I'm mostly self taught).<br>
 You can talk to me about anything tho, HMU on discord (kaonwry, I know I'm a one uncreative lad)<br>
 <br>
