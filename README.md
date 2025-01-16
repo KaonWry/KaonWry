@@ -1,5 +1,4 @@
 # 💫 About Me:
-<h3>This is probably the most unprofessional intro page innit?</h3>
 Currently learning CS at Jakarta State University, where I’m proving that even the worst code can compile with enough determination (and GPT-4). <br>
 You can talk to me about anything tho, HMU on discord (kaonwry, I know I'm a one uncreative lad)<br>
 <br>
