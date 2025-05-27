@@ -1,6 +1,6 @@
 # 💫 About Me:
 Currently learning CS at Jakarta State University, where I’m proving that even the worst code can run with enough determination (and GPT-4). <br>
-You can talk to me about anything tho, HMU on discord (kaonwry, I know I'm a one uncreative lad)<br>
+You can talk to me about anything tho, HMU on discord (kaonwry)<br>
 <br>
 i use arch btw<br>
 
